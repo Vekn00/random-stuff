@@ -1,1 +1,1 @@
-idk im makeing this for github pages
+idk am making this for GitHub pages
